@@ -1,2 +1,2 @@
 # ai-intuition
-All My thoughts is here 🤓
+All my thoughts are here 🤓
